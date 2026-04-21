@@ -1,0 +1,1 @@
+# slovotvor-privacy
